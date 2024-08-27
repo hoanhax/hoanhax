@@ -112,21 +112,4 @@ Has experience building a 𝒍𝒂𝒓𝒈𝒆 𝒔𝒚𝒔𝒕𝒆𝒎 𝒇𝒓
 <br/>  
 
 
-## Recent Blog Posts  
-  
 
-<br/>  
-
-  
-
-<br/>  
-
-  
-
-<br/>  
-
-
-<br />
-
-----
-<div align="center">Generated using <a href="https://profilinator.rishav.dev/" target="_blank">Github Profilinator</a></div>
